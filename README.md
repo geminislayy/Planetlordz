@@ -5,6 +5,6 @@
 - C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆  ┆彡
 
 - ☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․ ![alt text](https://media.discordapp.net/attachments/1052873893028843574/1294536224270450699/Untitled171_20241012004304.png?ex=670b5e4f&is=670a0ccf&hm=6041d25f493204a93c87c778b6876f36e2c94de92856e84713e5777ce7103d5f&=&format=webp&quality=lossless&width=671&height=671)
-![alt text](https://cdn.discordapp.com/attachments/1052873893028843574/1294538796657803264/Untitled171_20241012005429.png?ex=670b60b4&is=670a0f34&hm=d8ad303cb44ec52c8ebb80d13ecccdce79c5be12549aaba196a959dd1829a2d8&) 
+
 
 ![alt text](https://64.media.tumblr.com/b24936899bda69e23853744b16687645/2ebe225037b182ea-02/s1280x1920/bd5a4bc94dbb92334caa36278987ed342342b763.pnj)
