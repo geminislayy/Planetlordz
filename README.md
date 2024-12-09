@@ -6,4 +6,6 @@
 
 - C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆  ┆彡
 
-- ☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․![alt text](https://64.media.tumblr.com/b24936899bda69e23853744b16687645/2ebe225037b182ea-02/s1280x1920/bd5a4bc94dbb92334caa36278987ed342342b763.pnj)
+- ☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․
+
+![alt text](https://64.media.tumblr.com/b24936899bda69e23853744b16687645/2ebe225037b182ea-02/s1280x1920/bd5a4bc94dbb92334caa36278987ed342342b763.pnj)
