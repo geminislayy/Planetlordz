@@ -3,7 +3,8 @@
 
                                    
 ![alt text](https://64.media.tumblr.com/020605dcf2e4ff26388cb65005433707/3e996f12c5a38e16-51/s1280x1920/f290c589ed65570fb86d3283c578de792a802101.pnj)
- "2v1?? Ugh, you guys are gross."       "just say you're scared of me."
+ "2v1?? Ugh, you guys are gross."       "just say you're scared of me."  ![alt text](![image](https://github.com/user-attachments/assets/2ccf7e3d-166f-4d87-96c6-6427a07f8df7)
+)
 
 
 ac: strangler-fish
