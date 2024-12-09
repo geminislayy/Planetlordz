@@ -9,7 +9,7 @@
 
 ac: strangler-fish
 
-- hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆
+- hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆  ![alt text](https://i.ibb.co/GdymBzW/IMG-7993.gif)
 
 - C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆  ┆彡
 
